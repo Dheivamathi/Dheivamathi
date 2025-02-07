@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Dheivamathi
-- 👀 I’m interested in editing and designing
-- 🌱 I’m currently learning to photoshop
+- 📚 Undergrad majoring in International relations, peace studies and public policy
+- 📝 Publishing articles and research papers online on global affairs
+- 👀 Also interested in editing and designing and currently learning to photoshop 
 - 📫 Reach me through dheivamathi@gmail.com
 
 <!---
